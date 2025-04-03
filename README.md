@@ -1,5 +1,6 @@
 # silvmax
 ![Do4sxgAU4AAEiND](https://github.com/user-attachments/assets/74056107-76fc-4f7a-a55e-3086265734fb)
+
 hello!! this is all just basic info. :}
 * i go by Max, Hypnos, and Nico mostly.
 * please use he/him or they/them for me!
