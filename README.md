@@ -9,4 +9,5 @@ hello!! this is all just basic info. :}
 * FANDOMS I AM IN! - Cookie Run, Hades game, Persona 5, PJO, RDR2.
 * thank you for reading!! <3
 * my CRK user, im on PV server btw. silvermaxwell
+
 ![cookie-run-fire](https://github.com/user-attachments/assets/312a92b0-be69-406f-b54e-c88e97cbe7a4)
