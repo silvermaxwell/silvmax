@@ -11,5 +11,5 @@ hello!! this is all just basic info. :}
 * FANDOMS I AM IN! - Cookie Run, Hades game, Persona 5, PJO, RDR2.
 * thank you for reading!! <3
 * my CRK user, im on PV server btw. silvermaxwell
-  
-![gif](https://github.com/user-attachments/assets/bde288e2-24ff-4fdd-8bd2-363a8d8e3b9f)
+
+![a01677782ff27db993c3e13a56163945](https://github.com/user-attachments/assets/c70c4290-77d7-464f-9ec2-3c9c9a5afc3c)
