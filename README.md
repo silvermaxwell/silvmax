@@ -12,4 +12,4 @@ hello!! this is all just basic info. :}
 * thank you for reading!! <3
 * my CRK user, im on PV server btw. silvermaxwell
 
-![image](https://github.com/user-attachments/assets/39749dd6-e187-48bc-84b2-6f2ddb51e9ec)
+![GIF](https://github.com/user-attachments/assets/39749dd6-e187-48bc-84b2-6f2ddb51e9ec)
