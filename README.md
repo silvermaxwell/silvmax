@@ -1,5 +1,5 @@
 # silvmax
-https://media1.tenor.com/m/oQ3BfZ8PggUAAAAC/goro-akechi-akechi-goro.gif 
+[https://media1.tenor.com/m/oQ3BfZ8PggUAAAAC/goro-akechi-akechi-goro.gif ](https://tenor.com/view/goro-akechi-akechi-goro-persona-5-persona-lets-kiss-gif-11605144560087302661) 
 
 hello!! this is all just basic info. :]
 * I go by Max, Hypnos, and Akechi mostly.
