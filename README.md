@@ -1,5 +1,5 @@
 # silvmax
-<div class="tenor-gif-embed" data-postid="11605144560087302661" data-share-method="host" data-aspect-ratio="1.79137" data-width="100%"><a href="https://tenor.com/view/goro-akechi-akechi-goro-persona-5-persona-lets-kiss-gif-11605144560087302661">Goro Akechi Akechi Goro GIF</a>from <a href="https://tenor.com/search/goro+akechi-gifs">Goro Akechi GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+https://tenor.com/view/goro-akechi-akechi-goro-persona-5-persona-lets-kiss-gif-11605144560087302661 
 hello!! this is all just basic info. :]
 * I go by Max, Hypnos, and Akechi mostly.
 * Please use he/him or they/them for me!
