@@ -15,4 +15,4 @@ hello!! this is all just basic info. :]
 
 ![a01677782ff27db993c3e13a56163945](https://github.com/user-attachments/assets/c70c4290-77d7-464f-9ec2-3c9c9a5afc3c)
 
-![Visitor Count](https://profile-counter.glitch.me/{silvermaxwell}/count.svg)
+![](https://komarev.com/ghpvc/?username=silvermaxwell)
